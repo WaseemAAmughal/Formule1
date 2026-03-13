@@ -43,3 +43,4 @@ Suzuka
 
 Oscar Piastri
 
+overzicht van seizoen 24-25
